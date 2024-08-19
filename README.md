@@ -1,6 +1,4 @@
 <p align="center">
-<a href="#"><img src="https://telegra.ph/file/513705cc3b283b556ef3c.png" alt="SPAM OTP WHATSAPP" width="200" height="130"/></a>
-
 
 </p>
 <p align="center">
